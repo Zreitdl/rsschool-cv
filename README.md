@@ -1,1 +1,1 @@
-# rsschool-cv
+https://zreitdl.github.io/rsschool-cv/
